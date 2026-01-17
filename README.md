@@ -1,1 +1,1 @@
-# rsschool-cv
+https://McRonnic.github.io/rsschool-cv/cv
